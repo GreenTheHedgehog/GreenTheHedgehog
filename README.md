@@ -20,7 +20,7 @@ https://github.com/GreenTheHedgehog/hi-I-guess/blob/main/%D0%91%D0%B5%D0%B7%20%D
 
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 Characters that I kin:
-Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped(Forsaken). (I'm multifandom, hehe!)
+Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped(Forsaken), Noelle(Deltarune). (I'm multifandom, hehe!)
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 
 
