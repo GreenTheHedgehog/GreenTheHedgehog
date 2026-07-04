@@ -23,7 +23,7 @@ Hi!
 
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 Characters that I kin:
-Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped, Noelle(Deltarune), Sayori (DDLC), Nicole(Class of 09), Darkness (Konosuba), Sylveon (PKMN), Nyan Cat. (I'm multifandom, hehe!)
+Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped, Noelle(Deltarune), Sayori (DDLC), Nicole(Class of 09), Darkness (Konosuba), Sylveon (PKMN), Nyan Cat, Sua (Ailen Stage), Mizi(Ailen Stage). (I'm multifandom, hehe!)
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 
 
