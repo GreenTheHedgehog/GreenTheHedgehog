@@ -8,7 +8,10 @@
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿
 
 <img src="https://github.com/GreenTheHedgehog/GreenTheHedgehog/blob/main/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F486_20260628233215.png" style="width: 60%; height: auto;">
+
+
 Hi!
+
  I am Green The Hedgehog! you can call me Green or You can call me with nicknames if you want! no inappropriate!
 
 
@@ -20,11 +23,13 @@ Hi!
 
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 Characters that I kin:
-Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped, Noelle(Deltarune). (I'm multifandom, hehe!)
+Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped, Noelle(Deltarune), Sayori (DDLC), Nicole(Class of 09), Darkness (Konosuba), Sylveon (PKMN), Nyan Cat. (I'm multifandom, hehe!)
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 
 
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　
+
+
 Friends!
 ===================
 @AmysBakingShow @KnucklesIRL @DjTheHedgehog @SmartFoxNerd @CreamTheRabbit-IceCream
