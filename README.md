@@ -62,4 +62,4 @@ https://greeniehedgehog.atabook.org/
 
 WARNING!
 ----------
-⚠️: i do not support any creators who are actually problematic. i like any characters who arent being problematic, do not harassing any creators. we know if they're problematic.
+⚠️: i do not support any creators who are actually problematic. i like any characters who arent being problematic, do not harassing any creators. we know if they're problematic. and let's not talking about like many times, okay? we already know.
