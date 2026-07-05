@@ -23,7 +23,7 @@ Hi!
 
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 Characters that I kin:
-Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped, Noelle(Deltarune), Sayori (DDLC), Nicole(Class of 09), Darkness (Konosuba), Sylveon (PKMN), Nyan Cat, Sua (Ailen Stage), Mizi(Ailen Stage), Lila Rossi(MLB). (I'm multifandom, hehe!)
+Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Fluttershy(MLP), Bassie(DW), Sprout(DW), Amai(Yandere Simulator), Nemesis(Yandere Simulator), Iris(MegaMan), Roll(MegaMan), Alan(Route 06), Postman(Nostalgia Hangout), Enceladus (Enceladus but he's real), Itrapped, Noelle(Deltarune), Sayori (DDLC), Nicole(Class of 09), Darkness (Konosuba), Sylveon (PKMN), Nyan Cat, Sua (Ailen Stage), Mizi(Ailen Stage), Lila Rossi(MLB), Madoka (Madoka Magica). (I'm multifandom, hehe!)
 ✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
 
 
@@ -32,7 +32,7 @@ Cream(STH), Tails(STH), Amy(STH), Sally(STH), Shadow(STH), Silver(STH), Flutters
 
 Friends!
 ===================
-@AmysBakingShow @KnucklesIRL @DjTheHedgehog @SmartFoxNerd @CreamTheRabbit-IceCream
+@AmysBakingShow @KnucklesIRL @DjTheHedgehog @SmartFoxNerd @CreamTheRabbit-IceCream @CherrieJam
 
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　*･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿　　
 
@@ -60,3 +60,6 @@ https://greeniehedgehog.atabook.org/
 
 ![](https://komarev.com/ghpvc/?username=GreenTheHedgehog&color=52a447&label=my+friends!<3)
 
+WARNING!
+----------
+⚠️: i do not support any creators who are actually problematic. i like any characters who arent being problematic, do not harassing any creators. we know if they're problematic.
